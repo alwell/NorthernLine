@@ -16,7 +16,7 @@ It will be heavily picture led. There will be 50 pictures of each station along 
 
 Along with each station chapter there will be a picture of a Buddhist statue taken from the nearest statue to that station. E.g from a shop window or garden centre. The Buddha has more monuments to him than any other person in history. (source Trivial Pursuits).
 
-The beginning of the project will contain pictures of life in Tooting including, Tooting Market, the grade 1 listed Bingo Hall and the Park run. The majority of the TFL quotes have been collected from Tooting Bec tube station. This will serve as an introduction to the project.
+The beginning of the project will contain pictures of life in Tooting including, Tooting Market, the grade 1 listed Bingo Hall and the Park Run. The majority of the TFL quotes have been collected from Tooting Bec tube station. This will serve as an introduction.
 
 Olympus cameras are ideally suited to the project as their sophisticated image stabilization and wide aperture prime lenses can capture low light scenes with remarkable clarity.
 
