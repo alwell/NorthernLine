@@ -8,7 +8,7 @@ Amazingly, emerging from this grime are some enlightening quotes that the TFL st
 
 ![Quote](dream.jpeg)
 
-The Northern Line also has a great advantage over outer space in seeking to understand the world on account of its cost, £1,50 Oyster as opposed to 1.3 trillion dollars to go to Mars!
+The Northern Line also has a great advantage over outer space in seeking to understand the world on account of its cost, £1.50 Oyster as opposed to 1.3 trillion dollars to go to Mars!
 
 The output of the project will be a printed coffee table book, web site, an online slide presentation, Youtube video and maybe a photographic exhibition. 
 
