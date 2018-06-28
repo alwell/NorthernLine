@@ -2,7 +2,7 @@
 
 ![Tooting Broadway](bec.jpeg)
 
-## Note to Film Office TFL. Owing to complications of copyright etc I only seek to have permission to use the exterior pictures of the Northern Line tube stations for a commercial book. I will not be using the actual quotes from the tube line placed there by staff.This has been revised as from 12.00pm 28th June 2018.
+### Note to Film Office TFL. Owing to complications of copyright etc, I only seek to have permission to use the exterior pictures of the Northern Line tube stations for a commercial book. I will not be using the actual quotes from the tube line placed there by staff.This has been revised as from 12.00pm 28th June 2018.
 
 The Tube; grimy; smelly; crowded; necessary and efficient. There were about 294 million passenger journeys recorded in 2016/17 on the Northern line, making it the busiest on the Underground (Wikipedia). We could perhaps describe the tube as a bitter remedy for transport.
 
