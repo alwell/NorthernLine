@@ -10,15 +10,11 @@ Amazingly, emerging from this grime are some enlightening quotes that the TFL st
 
 The Northern Line also has a great advantage over outer space in seeking to understand the world on account of its cost, £1.50 Oyster as opposed to 1.3 trillion dollars to go to Mars!
 
-The output of the project will be a printed coffee table book, web site, an online slide presentation, Youtube video and maybe a photographic exhibition. 
+The output of the project will be a printed coffee table book, web site, an online slide presentation, Youtube video and  photographic exhibition. 
 
-It will be heavily picture led. There will be 50 pictures of each station along the Northern Line taken in half light. These will then form the basis of 50 chapters. At night time, the stations take on a different personalty and often become the main focal point of the community. The are like miniature temples lighting up their surroundings. Each picture will represent an entry to this path to understanding. Each station picture will be accompanied by a picture of a quote from TFL and a written quote from the Buddha.
+It will be heavily picture led. There will be 50 pictures of each station along the Northern Line taken in half light. These will then form the basis of 50 chapters. At night time, the stations take on a different personalty and often become the main focal point of the community. The are like miniature temples lighting up their surroundings. Each picture will represent an entry to this path to understanding. Each station picture will be accompanied by a picture of a quote from TFL and a written quote from the Buddha. There will be a short discussion and links to further study.
 
 Along with each station chapter there will be a picture of a Buddhist statue taken from the nearest statue to that station. E.g from a shop window or garden centre. The Buddha has more monuments to him than any other person in history. (source Trivial Pursuits).
 
-The beginning of the project will contain pictures of life in Tooting including, Tooting Market, the grade 1 listed Bingo Hall and the Park Run. The majority of the TFL quotes have been collected from Tooting Bec tube station. This will serve as an introduction.
-
-Olympus cameras are ideally suited to the project as their sophisticated image stabilization and wide aperture prime lenses can capture low light scenes with remarkable clarity.
-
-I am well suited to the project as I have been a professional photographer for 30 years and have used Olympus cameras for much of this time. I am also a leading publisher of Theravada Buddhist books worldwide. My books go into 24 different countries (www.zolag.co.uk). 
-I have also given three presentations on 'higher reality' at education research conferences; UEL Research conference 2015; ICERI Barcelona 2017 and 9th TEAN Conference 2018. I am currently a Senior Lecturer in Physics at University of East London and therefore understand the domains of science and of mindfulness at understanding the world.
+The author, Alan Weller has been a professional photographer for 30 years and is also a leading publisher of Theravada Buddhist books worldwide. These books go into 24 different countries (www.zolag.co.uk). 
+He also given three presentations on 'higher reality' at education research conferences; UEL Research conference 2015; ICERI Barcelona 2017 and 9th TEAN Conference 2018. He is currently a Senior Lecturer in Physics at University of East London and therefore understands the domains of science and of mindfulness at understanding the world.
