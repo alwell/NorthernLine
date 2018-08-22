@@ -14,4 +14,4 @@ The output of the project will be a printed coffee table book, web site, an onli
 
 It will be heavily picture led. There will be 50 pictures of each station along the Northern Line taken in half light. These will then form the basis of 10 chapters. At night time, the stations take on a different personalty and often become the main focal point of the community. The are like miniature temples lighting up their surroundings. Each picture will represent an entry to this path to understanding. Each station picture will be accompanied by a written quote from the Buddha. There will also be some interesting facts about the Northern Line and each station. The TFL quotes will be used as chapter titles.
 
-The author, Alan Weller has been a professional photographer for 30 years and is also a leading publisher of Theravada Buddhist books worldwide. 
+
