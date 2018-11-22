@@ -7,7 +7,7 @@ The Tube; grimy; smelly; crowded; necessary and efficient. There were about 294 
 Amazingly, emerging from this grime are some enlightening quotes that the TFL staff have placed at the entrance to some of the stations. It as if they are preparing the traveller for something deeper and higher. The purpose of this project is to juxtapose pictures of each tube station on the Northern Line with quotes taken from the Northern Line.
 ![Quote](dream.jpeg)
 
-There will be 50 pictures of each station along the Northern Line taken in half light. At night time, the stations take on a different personalty and often become the main focal point of the community. The are like miniature temples lighting up their surroundings.
+There will be 50 pictures of the stations taken in half light. At night time, the stations take on a different personalty and often become the main focal point of the community. The are like miniature temples lighting up their surroundings.
 
 Current Tube Pix here: [http://alwell.piwigo.com/index?/category/21-northern_line](http://alwell.piwigo.com/index?/category/21-northern_line)
 
