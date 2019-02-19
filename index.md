@@ -12,3 +12,5 @@ There will be 50 pictures of the stations taken in half light. At night time, th
 Current Tube Pix here: [http://alwell.piwigo.com/index?/category/21-northern_line](http://alwell.piwigo.com/index?/category/21-northern_line)
 
 Online references for the printed book: [References](cite.md)
+
+Book details: {Book details](nlmetta.md)
