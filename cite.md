@@ -1,11 +1,7 @@
-<div class="csl-bib-body" style="line-height: 1.35; ">
-
-<div class="csl-entry" style="margin-bottom: 1em;">
 
 *5 Misconceptions in mindfulness*. 2018. Available at:
 [https://www.youtube.com/watch?v=6yumN14By34&feature=youtu.be](https://www.youtube.com/watch?v=6yumN14By34&feature=youtu.be)  [Accessed 5 Feb. 2019\].
 
-</div>
 
 <div class="csl-entry" style="margin-bottom: 1em;">
 
