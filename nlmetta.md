@@ -79,7 +79,7 @@ thye presentations can be accessed below.
 
 [http://hdl.handle.net/10552/5513](http://roar.uel.ac.uk/5513/)
 
-[http://hdl.handle.net/10552/7234}http://hdl.handle.net/10552/7234)
+[http://hdl.handle.net/10552/7234](http://hdl.handle.net/10552/7234)
 
 
 
