@@ -13,4 +13,4 @@ Current Tube Pix here: [http://alwell.piwigo.com/index?/category/21-northern_lin
 
 Online references for the printed book: [References](cite.md)
 
-Book details: {Book details](nlmetta.md)
+Book details: [Book details](nlmetta.md)
