@@ -3,8 +3,9 @@
 <div class="csl-entry" style="margin-bottom: 1em;">
 
 *5 Misconceptions in mindfulness*. 2018. Available at:
-&lt;https://www.youtube.com/watch?v=6yumN14By34&feature=youtu.be&gt;
-\[Accessed 5 Feb. 2019\].
+&lt;[https://www.youtube.com/watch?v=6yumN14By34&feature=youtu.be&gt;
+\](https://www.youtube.com/watch?v=6yumN14By34&feature=youtu.be&gt;
+\)[Accessed 5 Feb. 2019\].
 
 </div>
 
