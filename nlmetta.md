@@ -74,6 +74,13 @@ He retired from UEL in 2018 and is currently continuing his work at Zolag publis
 
 **Prior Work:**
 
-During his time at UEL he gave 3 presentations on two topics to research conferences, UEL, ICERI and TEAN on ‘Higher Learning, higher reality...’  and ‘5 Misconceptions on mindfulness and why they may be harming school pupils.’ The papers accompanying the presentations are available at ROAR UEL.
+During his time at UEL he gave 3 presentations on two topics to research conferences, UEL, ICERI and TEAN on ‘Higher Learning, higher reality...’  and ‘5 Misconceptions on mindfulness and why they may be harming school pupils.’ The papers accompanying the 
+thye presentations can be accessed below.
+
+[http://hdl.handle.net/10552/5513](http://roar.uel.ac.uk/5513/)
+
+[http://hdl.handle.net/10552/7234}http://hdl.handle.net/10552/7234)
+
+
 
 **Location**: London, UK
