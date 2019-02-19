@@ -64,8 +64,18 @@ Italy Printer Network 	32 USD.
 **Name:** Alan Weller 	**Role:** Author	
 
 **Biography**
+While studying physics at Kent University, Alan developed a keen interest in photography which led to a career in photojournalism lasting for 30 years. During this time he has had pictures published throughout the world in various media ranging from The New York Times to Vogue. It was while working in London at The Times newspaper that he developed an interest in teaching both professionally, through educational assignments, and personally, through tutoring his sons in science. He decided to retrain and in 2008 obtained a PGCE from the Institute of Education in Secondary Physics. He has since taught science in both the private and state sectors, including grammar and comprehensive, mixed and single-sex schools, at key stage 3, 4 and 5
+. 
+In 2012, he joined the Cass School of Education at The University of East London as a Senior Lecturer in Physics responsible for training secondary science trainee teachers. 
 
+During his time at UEL he gave 3 presentations to research conferences, UEL, ICERI and TEAN on ‘Higher Learning, higher reality...’  and ‘5 Misconceptions on mindfulness and why they may be harming school pupils.’
+
+In 1978 he was given a Buddhist book on the Abhidhamma by a friend. Within the first 10 or so pages, he understood that there was a possibility of another way of understanding the world and a different way of studying the world. In 1994, he started a publishing company, Zolag, to make this and other books available. 
+
+He retired from UEL in 2018 and is currently continuing his work at Zolag publishing. He also recently become a student again at Morley College to learn electric guitar.
 
 **Prior Work:**
+
+During his time at UEL he gave 3 presentations on two topics to research conferences, UEL, ICERI and TEAN on ‘Higher Learning, higher reality...’  and ‘5 Misconceptions on mindfulness and why they may be harming school pupils.’ The papers accompanying the presentations are available at ROAR UEL.
 
 **Location**: London, UK
