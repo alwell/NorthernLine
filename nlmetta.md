@@ -70,12 +70,12 @@ In 2012, he joined the Cass School of Education at The University of East London
 
 In 1978 he was given a Buddhist book on the Abhidhamma by a friend. Within the first 10 or so pages, he understood that there was a possibility of another way of understanding the world and a different way of studying the world. In 1994, he started a publishing company, Zolag, to make this and other books available. 
 
-He retired from UEL in 2018 and is currently continuing his work at Zolag publishing. He also recently become a student again at Morley College to learn electric gContributoruitar.
+He retired from UEL in 2018 and is currently continuing his work at Zolag publishing. He also recently become a student again at Morley College to learn electric guitar
 
 **Prior Work:**
 
-During his time at UEL he gave 3 presentations on two topics to research conferences, UEL, ICERI and TEAN on ‘Higher Learning, higher reality...’  and ‘5 Misconceptions on mindfulness and why they may be harming school pupils.’ The papers accompanying the 
-thye presentations can be accessed below.
+During his time at UEL he gave 3 presentations on two topics to research conferences, UEL, ICERI and TEAN. ‘Higher Learning, higher reality...’  and ‘5 Misconceptions on mindfulness and why they may be harming school pupils.’ The papers accompanying the 
+the presentations can be accessed below.
 
 [http://hdl.handle.net/10552/5513](http://roar.uel.ac.uk/5513/)
 
