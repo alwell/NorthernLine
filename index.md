@@ -1,5 +1,7 @@
 # The Northern Line to High Reality via Bank
 
+This book has now been completed but is currently BANNED from publication!
+
 ![Tooting Broadway](bec.jpeg)
 
 The Tube; grimy; smelly; crowded; necessary and efficient. There were about 294 million passenger journeys recorded in 2016/17 on the Northern line, making it the busiest on the Underground (Wikipedia). We could perhaps describe the tube as a bitter remedy for transport.
