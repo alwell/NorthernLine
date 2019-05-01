@@ -16,4 +16,4 @@ Online references for the printed book: [References](cite.md)
 
 Book details: [Book details](nlmetta.md)
 
-Book draft pdf (to be uploaded): [Book details](draft.pdf)
+Book draft pdf (to be uploaded): [book draft](draft.pdf)
