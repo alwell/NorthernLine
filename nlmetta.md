@@ -61,7 +61,7 @@ Italy Printer Network 	32 USD.
 
 ## About the author
 
-**Name:** Alan Weller 	**Role:** Author	
+**Name:** Alan Weller 	**Role:** Author	and photographer
 
 **Biography**
 While studying physics at Kent University, Alan developed a keen interest in photography which led to a career in photojournalism lasting for 30 years. During this time he has had pictures published throughout the world in various media ranging from The New York Times to Vogue. It was while working in London at The Times newspaper that he developed an interest in teaching both professionally, through educational assignments, and personally, through tutoring his sons in science. He decided to retrain and in 2008 obtained a PGCE from the Institute of Education in Secondary Physics. He has since taught science in both the private and state sectors, including grammar and comprehensive, mixed and single-sex schools, at key stage 3, 4 and 5
