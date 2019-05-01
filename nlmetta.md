@@ -3,7 +3,7 @@
  Support Web Site [https://alwell.github.io/Support/](https://alwell.github.io/Support/)
 
 **Short Description** 
-50 Tube stations on the Northern Line photographed at dusk and dawn. Transport for London staff has placed some enlightening quotes at the entrance to some of the stations. This book shares the author's reflection on these quotes and his links to resources, to progress the reader to a 'higher dream', a 'high' reality.  
+50 Tube stations on the Northern Line photographed at dusk and dawn. Transport for London staff has placed some enlightening quotes at the entrance to some of the stations. This book shares the author's reflection on these quotes and his links to resources, to progress the reader to a 'higher dream', a 'high' reality.  The book has a particular emphasis on Abhidhamma 'higher reality' from the Theravada gtradition of Buddhism
 
 **Long Description**
 
