@@ -8,11 +8,11 @@
 **Long Description**
 
 
-The Tube: grimy, smelly, crowded, necessary and efficient. There were about 294 million passenger journeys recorded in 2016/17 on the Northern Line, making it the busiest on the Underground. We could perhaps describe the tube as a bitter remedy for transport.
+The Tube: grimy, smelly, crowded, necessary and efficient. There were about 294 million passenger journeys recorded in 2016/17 on the Northern Line, making it the busiest on the Underground (Northern line, 2019). We could perhaps describe the tube as a bitter remedy for transport.
 
-Emerging from this grime are some enlightening quotes that TFL (Transport for London) staff have placed at the entrance to some of the stations. It as if they are preparing the traveller for something deeper and higher. Many travellers like the quotes, they stop and take pictures. Blogs, social media, websites have been set to share the quotes. But can we progress to a `higher dream', a higher reality from the quotes?
+Emerging from this grime are some enlightening quotes that the TFL (Transport for London) staff have placed at the entrance to some of the stations (Figure). It as if they are preparing the traveller for something deeper and higher. Many travellers like the quotes, they stop and take pictures. Blogs, social media, websites have been set up to share the quotes. The quotes embrace fundamental truths about life, about the world. They stimulate us to deeper thought and deeper reflection. But can we progress to a `higher dream', a higher reality from the quotes?
 
-The author has used the Northern Line on a daily commute for seven years, but he is also on another journey each day. The path to the direct understanding of reality as it is. In this book, he reflects on that journey and the relevance of the quotes to that journey.  He also directs the reader to a rich set of free resources that he has made available.  It has a particular emphasis on the Abhidhamma (higher reality) from the Theravada tradition of Buddhism.
+The author has used the Northern Line on a daily commute for seven years, but he understands that there is also another journey which can be undertaken each day. The journey to the `direct understanding' of reality as it is. This is a solitary journey, something that you yourself have to undertake, others can just point the way (MORDEN DEPOT). As he read these quotes, he reflects on that journey and the relevance of the quotes to that journey.  The purpose of this book is to share his reflection with you and to point you to a rich set of free resources that he has available.  Alan is using these quotes as a trigger to progress you, the reader, to a `higher reality'. 
 
 
 **Table of Contents** 
