@@ -16,7 +16,7 @@ The author has used the Northern Line on a daily commute for seven years, but he
 
 
 **Table of Contents** 
-Preface; Introduction; Not all physics is physics; Preparing for the journey; Misconceptions; Who do we listen to?; Secular mindfulness (non-religious mindfulness); The path of detachment; How this book works; Summarizing the key points: How this book works, 14 Big Understanding Reality.
+Preface; Introduction; Not all physics is physics; Preparing for the journey; Misconceptions; Who do we listen to?; Secular mindfulness (non-religious mindfulness); The path of detachment; How this book works; Summarizing the key points: How this book works, 14 Big Ideas of Understanding Reality.
 
 51 pictures of Tube Stations plus quotes.
 
