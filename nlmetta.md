@@ -1,4 +1,4 @@
-![front cover](cover.png)
+![front cover](cover2.png)
 
 ## The Northern Line to High Reality via Bank
 
