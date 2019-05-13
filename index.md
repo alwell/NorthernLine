@@ -1,6 +1,6 @@
 # The Northern Line to High Reality via Bank
 
-This book is under revision and expected to be published on May 18th 2019.
+This book is published on May 18th 2019.
 
 ![Tooting Broadway](bec.jpeg)
 
@@ -15,8 +15,6 @@ Current Tube Pix here: [http://alwell.piwigo.com/index?/category/21-northern_lin
 Online references for the printed book: [References](cite.md)
 
 Book details: [Book details](nlmetta.md)
-
-Book draft pdf: [book draft](https://www.dropbox.com/s/0frynoyoth2l1g4/draft.pdf?dl=0)
 
 [Contact the author](https://docs.google.com/forms/d/e/1FAIpQLSf5lxYq2sVNpwgGuSzN51IMZVEdLB_KhzTKzqvW3hQo9CcZVg/viewform?usp=sf_link)
 
