@@ -16,7 +16,7 @@ Online references for the printed book: [References](cite.md)
 
 Book details: [Book details](nlmetta.md)
 
-Book Key points: [Key points](northernline.pdf)
+Book Key points: [Key points](northernline.html)
 
 Book draft [content download](https://www.dropbox.com/s/41iyu30n56bth98/main.pdf?dl=0)
 
