@@ -10,15 +10,9 @@ This book is published on May 18th 2019.
 
 ---
 
-Current Tube Pix here: [http://alwell.piwigo.com/index?/category/21-northern_line](http://alwell.piwigo.com/index?/category/21-northern_line)
-
 Online references for the printed book: [References](cite.md)
 
 Book details: [Book details](nlmetta.md)
-
-Book Key points: [Key points](https://alwell.github.io/Northernline/northernline.html)
-
-Book draft [content download](https://www.dropbox.com/s/41iyu30n56bth98/main.pdf?dl=0)
 
 [Contact the author](https://docs.google.com/forms/d/e/1FAIpQLSf5lxYq2sVNpwgGuSzN51IMZVEdLB_KhzTKzqvW3hQo9CcZVg/viewform?usp=sf_link)
 
