@@ -24,6 +24,32 @@ Preface; Introduction; Not all physics is physics; Preparing for the journey; Mi
 
 Morden Depot,Walking the Path; Morden,The Big Dream; South Wimbledon,Food for thought; Colliers Wood,Give it a try; Tooting Broadway, Led by a lion; Tooting Bec, Too Busy; Balham,Kindness; Clapham South, Falling in Love; Clapham Common, Integrity; Clapham North, True love; Stockwell, A positive attitude; Oval, Wrong things; Kennington, Overlooking the obvious; Elephant & Castle, Destiny is in ourselves; Borough, Why were you born?; London Bridge, Every day a new chapter; Bank, Missed opportunity; Moorgate, Risk too far; Old Street, The way to succeed; Angel,The training; Kings Cross St Pancras, Be yourself; Euston, Taking a risk: Mornington Crescent, Strong enough; Camden Town, Good reason; Kentish Town, Growth and opportunity; Tufnell Park, The present; Archway, The winds of change; Highgate, Pay the price; East Finchley, It is all within yourself; Finchley Central, Foolish; West Finchley, Your time will come; Woodside Park, Time is like a river; Totteridge and Whetstone, Help when you can; High Barnet, The difficult road; Mill Hill East, Be the change; Waterloo, You may wish you had started; Embankment, Intelligence without ambition; Charing Cross, A Friend; Leicester Square, Life is not a fairy tale; Tottenham Court Road, You cannot change someone; Goodge Street, Change 365 lives; Warren Street, Possibilities and Opportunities; Chalk Farm, A little progress each day; Belsize Park, Great minds; Hampstead, Eagles fly alone; Golders Green, The road to fate; Brent Cross, Happiness is a disposition of mind; Hendon Central, Wet floor; Collindale, More to life; Burnt Oak, Sincere ignorance; Edgeware, Strike while the iron is hot.
 
+**Reviews**
+5.0 out of 5 stars. *A great place to start on Buddhism.*
+
+2 July 2019
+
+Format: PaperbackVerified Purchase
+
+I own almost all of the books published by Zolag and read a little daily. When I try to maybe discuss what I have learned or explain reality in its ultimate sense, people listening to me often get confused and lose interest.
+
+I've tried many times to find a book that can plant a 'basic' seed for people who maybe interested in Buddhism but most books (even at their basic level) get the common householder confused and quickly interested in something else (like checking their phone) and the book is never opened again.
+
+This book is a gem for people who don't know where to start.
+
+I was confused as to where to start and purchased many other non-Zolag books in the beginning and also jumped straight in to reading the Buddha's Sutra's and missed all the wisdom and understanding embedded within them.
+I had no teacher and no guidance so I did it the hard way through trial and error of buying and reading many books.
+
+I've eventually found my niche which works perfectly for me which is through books published by Zolag. This is just my own personal preference which works for me. Everyone is different though.
+
+This one by Alan Weller is perfect for absolute beginners and plants a seed for further study. It's essentially a 'coffee table' book, but you'll find yourself grabbing it for a quick read more than the average magazine found on a coffee table.
+
+This book is a taster but also has some deeper explanations within it, but just at the right level I think so people start to do self enquiry rather than, "oh that's deep and what the hell did that mean".
+
+I hope this book finds you and starts the journey for you.
+
+www.amazon.co.uk review accessed 11/7/19.
+
 **Keywords** abhidhamma; buddhism; mindfulness; meditation; vipassana; insight; northern line
 
 **Language** English
