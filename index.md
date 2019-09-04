@@ -10,6 +10,8 @@ This book is published on May 18th 2019.
 
 ---
 
+[Promotional video](https://youtu.be/XeVEX9dGVTY)
+
 Online references for the printed book: [References](cite.md)
 
 Book details: [Book details](nlmetta.md)
