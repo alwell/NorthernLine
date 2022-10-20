@@ -5,7 +5,7 @@
  Support Web Site [https://alwell.github.io/Northernline/](https://alwell.github.io/Northernline/)
 
 **Short Description** 
-50 Tube stations on the Northern Line photographed at dusk and dawn. Transport for London staff has placed some enlightening quotes at the entrance to some of the stations. This book shares the author's reflection on these quotes and his links to resources, to progress the reader to a 'higher dream', a 'high' reality.  The book has a particular emphasis on Abhidhamma, 'higher reality' from the Theravada tradition of Buddhism.
+52 Tube stations on the Northern Line photographed at dusk and dawn. Transport for London staff has placed some enlightening quotes at the entrance to some of the stations. This book shares the author's reflection on these quotes and his links to resources, to progress the reader to a 'higher dream', a 'high' reality.  The book has a particular emphasis on Abhidhamma, 'higher reality' from the Theravada tradition of Buddhism.
 
 **Long Description**
 
@@ -22,7 +22,7 @@ Preface; Introduction; Not all physics is physics; Preparing for the journey; Mi
 
 51 pictures of Tube Stations plus quotes.
 
-Morden Depot,Walking the Path; Morden,The Big Dream; South Wimbledon,Food for thought; Colliers Wood,Give it a try; Tooting Broadway, Led by a lion; Tooting Bec, Too Busy; Balham,Kindness; Clapham South, Falling in Love; Clapham Common, Integrity; Clapham North, True love; Stockwell, A positive attitude; Oval, Wrong things; Kennington, Overlooking the obvious; Elephant & Castle, Destiny is in ourselves; Borough, Why were you born?; London Bridge, Every day a new chapter; Bank, Missed opportunity; Moorgate, Risk too far; Old Street, The way to succeed; Angel,The training; Kings Cross St Pancras, Be yourself; Euston, Taking a risk: Mornington Crescent, Strong enough; Camden Town, Good reason; Kentish Town, Growth and opportunity; Tufnell Park, The present; Archway, The winds of change; Highgate, Pay the price; East Finchley, It is all within yourself; Finchley Central, Foolish; West Finchley, Your time will come; Woodside Park, Time is like a river; Totteridge and Whetstone, Help when you can; High Barnet, The difficult road; Mill Hill East, Be the change; Waterloo, You may wish you had started; Embankment, Intelligence without ambition; Charing Cross, A Friend; Leicester Square, Life is not a fairy tale; Tottenham Court Road, You cannot change someone; Goodge Street, Change 365 lives; Warren Street, Possibilities and Opportunities; Chalk Farm, A little progress each day; Belsize Park, Great minds; Hampstead, Eagles fly alone; Golders Green, The road to fate; Brent Cross, Happiness is a disposition of mind; Hendon Central, Wet floor; Collindale, More to life; Burnt Oak, Sincere ignorance; Edgeware, Strike while the iron is hot.
+Morden Depot,Walking the Path; Morden,The Big Dream; South Wimbledon,Food for thought; Colliers Wood,Give it a try; Tooting Broadway, Led by a lion; Tooting Bec, Too Busy; Balham,Kindness; Clapham South, Falling in Love; Clapham Common, Integrity; Clapham North, True love; Stockwell, A positive attitude; Oval, Wrong things; Kennington, Overlooking the obvious; Elephant & Castle, Destiny is in ourselves; Borough, Why were you born?; London Bridge, Every day a new chapter; Bank, Missed opportunity; Moorgate, Risk too far; Old Street, The way to succeed; Angel,The training; Kings Cross St Pancras, Be yourself; Euston, Taking a risk: Mornington Crescent, Strong enough; Camden Town, Good reason; Kentish Town, Growth and opportunity; Tufnell Park, The present; Archway, The winds of change; Highgate, Pay the price; East Finchley, It is all within yourself; Finchley Central, Foolish; West Finchley, Your time will come; Woodside Park, Time is like a river; Totteridge and Whetstone, Help when you can; High Barnet, The difficult road; Mill Hill East, Be the change; Waterloo, You may wish you had started; Nine Elms, Never try; Battersea Power Station, Parking spaces; Embankment, Intelligence without ambition; Charing Cross, A Friend; Leicester Square, Life is not a fairy tale; Tottenham Court Road, You cannot change someone; Goodge Street, Change 365 lives; Warren Street, Possibilities and Opportunities; Chalk Farm, A little progress each day; Belsize Park, Great minds; Hampstead, Eagles fly alone; Golders Green, The road to fate; Brent Cross, Happiness is a disposition of mind; Hendon Central, Wet floor; Collindale, More to life; Burnt Oak, Sincere ignorance; Edgeware, Strike while the iron is hot.
 
 **Reviews**
 5.0 out of 5 stars. *A great place to start on Buddhism.*
@@ -54,13 +54,13 @@ www.amazon.co.uk review accessed 11/7/19.
 
 **Language** English
 
-**Edition** 
+**Edition**  Second
 
-**ISBN Complete:** 9781897633366
+**ISBN Complete:** 97818976333465
 
-**Publication Date:** 18th May 2019
+**Publication Date:** 20th October 2022
 
-**First published:** 
+**First published:** May 2019
 
 **Page Count:** 140
 
@@ -68,22 +68,7 @@ www.amazon.co.uk review accessed 11/7/19.
 
 **Thema Subject Category:** QRFB1
 
-**Market pricing**
 
-Spain Printer Network 	32 USD;
-United States 	32 USD;
-United Kingdom 	25 GBP;
-Canada 	42 CAD;
-European Union 	28 EUR;
-Australia (GST Exclusive) 45 AUD;
-Brazil Printer Network 	32 USD;
-Germany Printer Network 32 USD;
-Russia Printer Network 	32 USD;
-South Korea Printer Network 	32 USD;
-Poland Printer Network 	32 USD; 
-China Printer Network 	32 USD; 
-India Printer Network 	32 USD; 
-Italy Printer Network 	32 USD. 
 
 
 
